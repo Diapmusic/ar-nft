@@ -27,4 +27,4 @@ The app's source code is made available under the [MIT license](LICENSE). Some o
 
 ## Contact
 
-Akinn Rosa - [Github](https://github.com/akinncar) - **[akinncar@hotmail.com](mailto:akinncar@hotmail.com)**
+follow for more on my twitter page twitter.com/DiaP_Music 
